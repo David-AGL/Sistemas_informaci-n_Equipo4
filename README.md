@@ -1,1 +1,1 @@
-# Sistemas_informaci-n_Equipo4
+# Sistemas_informacion_Equipo4
